@@ -1,1 +1,0 @@
-# math-tetrahedronvx206a
